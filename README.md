@@ -4,6 +4,6 @@
 - 💞️ I’m looking to collaborate on projects that serve others. Healthcare, education, technology are some of the fields I would like to work with.
 - 📫 Email me at iaconom821@gmail.com
 
-<!---
+
 Ask questions. Make a plan. Execute. Trust yourself
---->
+
